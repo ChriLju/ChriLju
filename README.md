@@ -2,7 +2,7 @@
 - 👀 I’m interested in WORLD DOMINATION
 - 🌱 I’m currently learning ROBOTICS
 - 💞️ I’m looking to collaborate on SKYNET
-- 📫 How to reach me ONLYFANS/CHRILJU
+- 📫 How to reach me chrilju@student.chalmers.se
 
 <!---
 ChriLju/ChriLju is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
